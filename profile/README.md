@@ -1,8 +1,8 @@
 # Sprunki Night Time Online - Play Sprunki Incredibox MOD for Free! 🌙🎵
 
-## [Play Now!](https://shorturl.at/kFnZX)
+## [Play Now!](https://shorturl.at/kFnZX) - [Play Link 2!](https://shorturl.at/pBYDE)
 
-## [Play Link 2!](https://shorturl.at/pBYDE)
+## [Play Sprunki Sinner Edition](https://github.com/Sprunki-Sinner-Edition-Online)
 
 ![hq720-24-2](https://github.com/user-attachments/assets/424764a7-feda-4851-9bcc-fc6cbf06a846)
 
