@@ -2,7 +2,13 @@
 
 ## [Play Now!](https://shorturl.at/kFnZX) - [Play Link 2!](https://shorturl.at/pBYDE)
 
-## [Play Sprunki Sinner Edition](https://github.com/Sprunki-Sinner-Edition-Online)
+## [Play Sprunki Phase 2](https://github.com/sprunki-phase-2-online-mod)
+
+## [Play Sprunki Phase 3](https://github.com/sprunki-phase-3-online)
+
+## [Play Sprunki Phase 4](https://github.com/sprunki-phase-4-online-mod)
+
+## [Play Sprunki Phase 5](https://github.com/sprunki-phase-5-online-mod)
 
 ![hq720-24-2](https://github.com/user-attachments/assets/424764a7-feda-4851-9bcc-fc6cbf06a846)
 
